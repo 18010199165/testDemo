@@ -1,1 +1,1 @@
-kan wo
+kan wo de
